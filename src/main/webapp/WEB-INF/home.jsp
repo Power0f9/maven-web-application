@@ -25,7 +25,7 @@
 		SGR Dental college Road,
 		Marthahalli,Opp To Madhurai Iddly House
 		Bangalore.
-		+91-9980923226
+		+91-8455895857
 	</span>
 </div>
 <hr>
